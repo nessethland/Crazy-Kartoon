@@ -219,4 +219,4 @@ Crazy KartOON is offered as a full free version with all features and updates in
 Get ready to race! **Download Crazy KartOON now** and experience the excitement for yourself!
 
 ---
-**Last updated:** 2026-10-17 22:03:25 UTC
+**Last updated:** 2026-10-18 00:44:12 UTC
